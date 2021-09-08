@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @nunomgvaz
+- 👀 I’m interested in Unreal and Unity engines and Python
+- 🌱 I’m currently learning Python and C# 
+- 💞️ I’m looking to collaborate on a videogame idea! 
+- 📫 You can reach me at my complex (lol) website at nunovaz.com 
