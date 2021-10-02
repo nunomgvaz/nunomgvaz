@@ -8,4 +8,4 @@
 
 📫 You can reach me at my complex (lol) website at www.nunovaz.com 
 
-🐱‍🐉 Meanwhile... Why don't you play my Scracth game: https://scratch.mit.edu/projects/554025095/
+🐱‍🐉 Meanwhile... Why don't you play my Scracth game? https://scratch.mit.edu/projects/554025095/
